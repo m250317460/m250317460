@@ -17,5 +17,5 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on Hebei University of Technology
 - 🌱 I’m currently learning Vehicle Re-Identification
-- 📫 How to reach me: Phone:17720135024 QQ:250317460 WeChat:17720135024
+- 📫 How to reach me:  QQ:250317460 WeChat:m250317460
 - ⚡ Fun fact: Maybe U can introduce a girlfriend to me
